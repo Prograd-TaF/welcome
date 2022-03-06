@@ -3,7 +3,7 @@
 
 **Nick Name: Madhu**
 
-**Email: madhuvanthisrikanth21820gmail.com**
+**Email: madhuvanthisrikanth21820@gmail.com**
 
 **LinkedIn:**
 
